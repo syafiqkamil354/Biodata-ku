@@ -1,2 +1,0 @@
-# Biodata-ku
-Website personal
